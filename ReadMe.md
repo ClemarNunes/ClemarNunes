@@ -25,7 +25,7 @@ If you have any questions, ideas, or just want to chat, don’t hesitate to reac
 
 ---
 
-_Thank you for visiting my profile!_<br><br>Thank you for visiting my profile.
+<br><br>Thank you for visiting my profile.
 
 
 ## 🌐 Socials:
